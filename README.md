@@ -14,6 +14,5 @@ oooo1111460140sp@al.educacao.sp.gov.br
 
 evellyn_yasmin240
 
-
-https://media.tenor.com/I5lzO-_Oe4kAAAAi/stitch-kiss.gif
+![](https://media.tenor.com/I5lzO-_Oe4kAAAAi/stitch-kiss.gif)
 
